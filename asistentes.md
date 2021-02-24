@@ -6,3 +6,4 @@
 7. Sofía Cardenas  
 5. Alma Calderón
 5. Juliana Flórez
+9. Paula Barreto
